@@ -1,0 +1,1 @@
+Tao J, Xu Z, Ho HC, Zheng H, Xing X, Hu J, Tong S, Kim H, Hossain MZ, Su H, Huang C, Cheng J. Quantifying localized heatwave impact on mortality: a multi-country modeling study in the Asia-Pacific region. Lancet Reg Health West Pac. 2025 Aug 7;61:101653. doi: 10.1016/j.lanwpc.2025.101653. PMID: 40822291; PMCID: PMC12351342.
